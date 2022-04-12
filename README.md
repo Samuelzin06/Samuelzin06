@@ -10,5 +10,6 @@ You can click the Preview link to take a look at your changes.
 --->
 - sou atleta de futebol
 - meu sonho eh ser atleta profissonal de jogador de futebol
-- nao gosto da direçao da minha escola
-- gosto de ouvir musicas e jogar jogos e comer comida
+- nao gosto de ser aluno do wistremundo
+- jogo jogos e ouço musica
+- nao sei cozinhar nada kkkkkkkkkk
